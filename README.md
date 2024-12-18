@@ -24,7 +24,7 @@ DSA OCT 2024 Participants
 19.
 20.
 21.
-22.
+22. Sneha K S
 23.
 24.
 25.
